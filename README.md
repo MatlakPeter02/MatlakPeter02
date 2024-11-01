@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+🌱 I’m currently learning at the Technical University of Cluj-Napoca (UTCN) and Mathias Corvinus Collegium (MCC).
+
+📫 How to reach me:
+  Email address: peter.matlakzs@gmail.com
+  
+😄 Hobbies: piano, tennis
+  
