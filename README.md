@@ -20,5 +20,5 @@ Here are some ideas to get you started:
 📫 How to reach me:
   Email address: peter.matlakzs@gmail.com
   
-😄 Hobbies: piano, tennis
+⚡ Hobbies: piano, tennis
   
