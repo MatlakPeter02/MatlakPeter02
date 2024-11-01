@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+💬 I'm Matlák Péter from Cluj-Napoca, Romania.
 
 🌱 I’m currently learning at the Technical University of Cluj-Napoca (UTCN) and Mathias Corvinus Collegium (MCC).
 
